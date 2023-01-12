@@ -25,7 +25,6 @@
 
 - 😄 Pronouns: **He/Him/His**
 
-- ⚡ Fun fact: **Programmers don't have girlfriends, but I do🤣**
 
 </div>
 
